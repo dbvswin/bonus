@@ -1,9 +1,9 @@
 # Deneme Bonusu Veren Siteler 🚀 Güncel Bonuslar ve Bahis Fırsatları Burada! 🎉
 
-# [Jojobet Giriş İçin Tıklayınız](https://winzhub.org)
-# [Jojobet Giriş İçin Tıklayınız](https://winzhub.org)
-# [Jojobet Giriş İçin Tıklayınız](https://winzhub.org)
-# [Jojobet Giriş İçin Tıklayınız](https://winzhub.org)
+# [Bonuslar İçin Tıklayınız](https://winzhub.org)
+# [Bonuslar İçin Tıklayınız](https://winzhub.org)
+# [Bonuslar İçin Tıklayınız](https://winzhub.org)
+# [Bonuslar İçin Tıklayınız](https://winzhub.org)
 
 <br>
 
